@@ -1,5 +1,6 @@
 Bohlmark, A., & Lindahl, M. (2007). The impact of school choice on pupil achievement, segregation and costs: Swedish evidence.
 
+
 Summary: This source analizes school choice and its implications, 
 
 as well as using a case study to gather data. 
