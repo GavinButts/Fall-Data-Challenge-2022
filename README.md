@@ -8,3 +8,5 @@ Imagine you are serving as a consultant to a school district. Your team has been
 Google Slides: https://docs.google.com/presentation/d/1NAPlajkv1AG-pe467hUTnEkRH-l_OwS9BjSpPM8O4ok/edit?usp=sharing
 
 Google Doc: https://docs.google.com/document/d/1CZPN26nhtzWtVLRqgcd3OvImOjSA3onp3NfBQLia8h8/edit?usp=sharing
+
+Google lit review: https://docs.google.com/presentation/d/1QMWS0ukKRiE83Z2k8izialvOakVTBGg8wlsoSpjhzQY/edit#slide=id.g171eb75b0f4_0_6
